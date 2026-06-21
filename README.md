@@ -35,7 +35,8 @@ Their love story unfolds in a world without sound — through handwritten notes,
 
 ## 🌐 Read Online
 
-Coming soon at: **https://walusimbi-leon1.github.io/the-rhythm-of-your-heart/**
+✅ **Read online:** https://walusimbi-leon1.github.io/the-rhythm-of-your-heart/book.html
+- 📥 **[Download PDF](https://walusimbi-leon1.github.io/the-rhythm-of-your-heart/The%20Rhythm%20of%20Your%20Heart.pdf)**
 
 ## 📚 Part of the SGSS Literary Collection
 
