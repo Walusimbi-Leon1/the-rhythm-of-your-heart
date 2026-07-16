@@ -1,6 +1,7 @@
 {
-  "current_version": "1.0",
+  "current_version": "2.0",
   "releases": [
-    {"version": "1.0", "tag": "v1.0", "date": "2026-07-16", "title": "The Rhythm of Your Heart", "description": "A love story transcending language, hearing, and silence"}
+    {"version": "1.0", "tag": "v1.0", "date": "2026-07-16", "title": "The Rhythm of Your Heart", "description": "East Africa Edition — deaf artist and musician in Kampala"},
+    {"version": "2.0", "tag": "v2.0", "date": "2026-07-16", "title": "The Rhythm of Your Heart", "description": "International Edition — London, Seoul, New York, New Orleans romance"}
   ]
 }
