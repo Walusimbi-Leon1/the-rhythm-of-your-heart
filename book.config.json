@@ -1,0 +1,17 @@
+{
+  "title": "The Rhythm of Your Heart",
+  "subtitle": "A Novel",
+  "genre": "Romance",
+  "author": "Walusimbi Leon (SGSS)",
+  "description": "Soo-jin Park, a deaf Korean artist in London, sees music everywhere; she meets a jazz pianist and they discover love beyond sound.",
+  "style": "Sensory, poetic third-person prose. Rich with the language of sound, silence, color, and music. Deeply empathetic.",
+  "characters": "Soo-jin Park — deaf painter who sees music; a jazz pianist (the love interest).",
+  "setting": "London (Whitechapel, Brick Lane).",
+  "notes": "Early chapters — the gallery opening, the first meeting. Explore how they communicate and fall in love beyond sound. Handle deafness with dignity and authenticity.",
+  "chapterTitle": "Chapter",
+  "mdFiles": ["v2.0/book.md"],
+  "htmlFiles": ["v2.0/book.html"],
+  "indexInject": null,
+  "mdHeadingLevel": 3,
+  "targetWords": 2000
+}
