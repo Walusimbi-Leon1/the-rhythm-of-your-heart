@@ -584,6 +584,96 @@ They all leaned together, the three of them, one palm over one sternum, the whol
 
 And they listened.
 
+### Chapter 9 — The Pedal Point
+
+The note died, but nobody moved for a long while. Soo-jin kept her palm where she had placed it — over Marcus's hand, over Hana's small head, over the living current that ran between all three of them — and she felt the three pulses settle into one another like birds aligning on a wire. The studio window had gone from pale gold to bruised violet. Dust moved slowly in the last slanted light, and she watched it drift without music, stirred only by the temperature of the room and the breath of the old building.
+
+Hana yawned — a silent, enormous yawn that cracked her jaw wide enough to show the small white teeth — and then she pressed her cheek to Marcus's chest and signed with one hand, eyes still closed: *Carry me.*
+
+Marcus laughed, and Soo-jin felt it as a low rumble through his ribs, a warm percussion against her palm. He stood and lifted Hana as though she were made of thread. She wrapped her legs around his waist, her arms around his neck, and dropped her head to his shoulder with the absolute trust of a person who had never once doubted she would be caught.
+
+Soo-jin collected her shoes and Marcus's jacket. They left the studio. The corridor was dark, the floorboards singing different pitches under each step; Soo-jin felt them through the soles of her bare feet. Behind them, a door opened, and an old voice — the landlord's sister, who lived on the first floor and grew chillies on the windowsill — called out something in a language Soo-jin couldn't see. Marcus answered over his shoulder, a few words, and the door closed again.
+
+Soo-jin signed against his back: *What did you say?*
+
+*I told her the baby had fallen asleep. I told her we were going home.*
+
+*What did she say?*
+
+*She said, "Home is where the music is."*
+
+Soo-jin felt the phrase land in her chest, warm and liquid as tea. She pressed her hand more firmly between his shoulder blades and felt his breath travelling up his spine, slow as a bow drawn across a cello string.
+
+Outside, Brick Lane was waking. Streetlamps pooled orange over the wet pavement. A crowd of young people spilled from a curry house, laughing into the cold air, their breath rising in plumes of steam. Soo-jin watched their mouths open and close, watched the tilt of their chins, the way their hands found each other's sleeves, the way they turned together into the dark — and she understood, as she always did, that language was never only in the voice. It was in the angle of a head. The weight of a step. The decision to walk beside someone rather than ahead.
+
+The pavement hummed. Beneath her feet, London's long continuous drone — the old stone, the tube trains, the buried rivers, the city's patient machinery — vibrated up through the balls of her feet and into her shins. Some nights it tired her, that endless low machine-note under everything. Tonight it felt like accompaniment. Beneath the city's drone, the remembered note still rang, the one that had travelled up her body in the studio and taken up residence in her chest. Not the same volume. But the same pitch. The same arrival.
+
+The flat was above a shop that sold vintage fabric. The door was painted turquoise and flaked dried leaves of paint onto the step. Soo-jin unlocked it, felt the click of the latch through her fingertips, and they climbed the narrow stairs. The flat was one large room, divided into territories by bookcases and the tall leaves of plants. A battered sofa under the window. The kitchen in the far corner, the tap dripping at its own private tempo. And near the window that overlooked the lane, Soo-jin's easel held the painting she had been working on all week.
+
+She stopped to look at it. It was a painting of the studio piano — not the instrument itself, but what the instrument did. She had painted it with her eyes closed and her left hand flat on the top of her wooden chair, feeling the room hum through her palm. The canvas was mostly white, over-brushed and re-scraped until it had the texture of breath on glass. A single stroke of gold rose from the lower left corner, drawn upward like a thread pulled through water. This morning it had not looked finished. Now, after the note, it looked like the only painting she had ever needed to make.
+
+Marcus carried Hana to the corner of the room curtained off as her sleeping nook. Soo-jin followed. She watched him lower their daughter onto the small mattress, watched Hana roll onto her back without waking, watched her small hand open and close once, like a sea anemone testing the water. Marcus pulled the blanket to her chin and stood looking down at her. Soo-jin saw something move across his face — a tenderness so unguarded, so without armour, that she had to look away.
+
+They moved to the kitchen. Marcus put the kettle on and Soo-jin sat at the small table, tracing the grain of the wood with the pad of her index finger. A stack of mail leaned against the sugar bowl. On top was a cream envelope, her name in typed letters, a postmark she couldn't read at this distance, the flap embossed with a gallery's name. She turned it over in her hands, testing its weight.
+
+Marcus set a mug of tea in front of her and sat down. His knees, under the table, almost touched hers. He signed: *What is it?*
+
+*A letter.* She turned it over again. *From New York.*
+
+*Are you going to open it?*
+
+She looked at him. His face was serious, but his eyes were soft and full of the afternoon — full of the studio, the note, the child asleep in the corner. Soo-jin realised she was afraid. Not of the letter's contents. Of moving. Of letting the world in. Of the arrangement of their lives being rearranged by a piece of paper.
+
+*I'm happy,* she signed. The words were small. She had to shape them carefully. *I don't want to move anything.*
+
+Marcus put his hand over hers on the table. Palm down. Not gripping. Resting. She felt his warmth through the grain of the wood, through the thin skin of her knuckles. *Then we don't,* he signed. *The letter can stay closed. The world can wait.*
+
+But the world, of course, had already arrived. Because beneath the cream envelope, half-hidden, there was a postcard. A dark blue photograph of a wrought-iron balcony, a smear of pink flowers, a name printed in a typeface like penmanship. She turned it over. The address was Marcus's. The message was short, in a script she had to squint at, and Marcus leaned close and read it over her arm, his breath warm on her wrist.
+
+A jazz club in New Orleans. One month in the spring. A residency. Ten nights. They had never stopped asking him.
+
+He sat back. Soo-jain watched his face. There was something flickering at the edge of his mouth — a hope he was trying to contain, a longing he had folded away so long ago that it had gone flat, like a pressed flower.
+
+She pushed the cream envelope aside and lifted the postcard. She read it again — the little she could understand. Then she signed, slowly: *You want to go.*
+
+He did not answer immediately. He looked across the room to the curtained corner where their daughter slept, then back to Soo-jin. He signed: *I want to go with you. And Hana. The club has a house in the garden. It's small. The landlord says families stay. The piano is a Steinway from 1927. They say it smells like river water and jasmine.*
+
+Soo-jin felt the words move through her hands into her chest. River water. Jasmine. The smell of a piano she would never hear but could already taste, metallic and green, like the air after a storm.
+
+*And New York?* he asked. *The gallery?*
+
+She looked at the cream envelope. She had been carrying it for three days without opening it, afraid of its possibilities. But the afternoon had taught her something: the same note could live in every room. It could travel. It could change shape and still be the same heartbeat underneath.
+
+She slid her fingernail under the flap and opened the envelope. The letter inside was one page and an exhibition contract. A spring show. Twelve paintings. The gallery had seen photographs of her vibration paintings — the ones she had made blind, hand on wood, listening through her body — and they wanted them. All of them. The gallery was in SoHo. The title of the show, which someone had already chosen, was *To Feel the Note.*
+
+She set the letter down. Marcus read it silently. When he looked up, his eyes were wet.
+
+*Spring,* he signed. *New York. Then New Orleans.*
+
+*We have never been to New Orleans,* she signed.
+
+*We have never been anywhere together,* he answered. *Except each other.*
+
+She laughed, silently, her shoulders shaking, and he laughed too, and then they were both laughing in the electric light of the small kitchen with the letter and the postcard between them, and the kettle boiled over, hissing and spitting, a white plume of steam rising like a note held too long.
+
+They climbed up to the roof later, leaving Hana asleep below with the baby monitor on the table. The roof was flat and tarred, the parapet low, and the city spread out around them as a circuit of lights. Soo-jin stood at the edge with her bare toes curling over the lip of the parapet, and she felt the city through the soles of her feet — every club, every basement, every engine, every heartbeat of every person trying to sleep or not sleep — all of it one long sustained tone beneath the changing shapes of melody.
+
+Marcus stood behind her, his hands on her shoulders. She leaned back into him and felt his pulse through his forearms, through the thin cotton of his shirt.
+
+She signed over her shoulder, her hands close to her chest where he could follow her fingers: *Every city has a note. I'll find yours wherever we go.*
+
+He pressed his lips to the crown of her head. She felt the shape of his smile through her hair. He signed, pressing his cheek against her temple so she would feel the vibration of his voice as he said the words aloud, his hands moving in front of her: *We are the note, Soo-jin. The city is just the instrument.*
+
+Below them, a siren rose and fell and faded. A train rumbled under the pavement, shaking the parapet. Somewhere a window opened; somewhere a window closed. The city played its long drone, the pedal point under all the music anyone could make.
+
+Soo-jin closed her eyes and felt the rhythm of her heart, the rhythm of his heart against her back, and the small distant rhythm of their daughter, asleep in the warm dark below — all three pulsing in the same time, the same measure, the same long phrase that had begun long before any of them was born.
+
+She did not open her eyes. She only pressed her hands over his, where they rested on her shoulders, and she listened.
+
+The note was still there. It had never left.
+
+It would travel with them.
+
 ---
 
 *— End —*
