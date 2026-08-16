@@ -688,6 +688,84 @@ On the plane, she asked for the window seat. Marcus took the aisle, Hana between
 
 They landed in a wall of morning. Soo-jin had not expected the size of the light. It came off the river, off the windows, off the long spine of the skyline, and it was not like London's grey-gold thread or Seoul's high bright clarity. It was a braided light, dense and quick, moving at the speed of the city. She felt it through the terminal's glass as a vibration, high and urgent, humming under the rumble of the crowd. The doors opened onto the curb, and the car they had been assigned slid up — a black car with a driver who held a sign printed with her name. Soo-jin looked at her name on the paper, in a stranger's handwriting, and she felt a ripple of strange, delicate gratitude. The driver — a woman with short grey hair and reading glasses on a cord around her neck — smiled at Hana and said something Soo-jin could not hear. Marcus leaned over and signed, his lips moving as he said the words aloud: *She says you look like you're on a mission.* Soo-jin signed back: *Tell her I am. Tell her we both are.* Marcus told her. The driver laughed, a sound Soo-jin saw in the movement of her shoulders, and she opened the door. Soo-jin helped Hana in, then slid in beside her, and Marcus sat on the other side. The city moved past the tinted windows in a wash of color. Taxis yellow as a held note. Brick the color of old blood. The river flashing between buildings like a quick finger. Soo-jin put her hand flat on the window again, and she felt the city's bass — the rumbling of the bridge under the tires, the deep pull of the river currents, the subway grinding somewhere below the street. It was different from London. Wider. Louder in the chest. A note with more space in it. She signed to Marcus, her hands moving in the seat-wide silence: *We are here.* *We are,* he signed. *We are anywhere we are together.* Hana had fallen asleep, her head tipped against the seat belt strap. Her red hood had slipped down, and her face was open and peaceful. Soo-jin looked at her daughter, then out at the impossible city, and she felt the whole thing — the motion, the vibration, the life humming up through her — as a single phrase, long and unbroken, a melody that had begun before any of them and would continue long after. She had been afraid of moving for so long. But love, she learned, was not a place that held you. It was a rhythm that traveled with you — and she could feel it pulsing here, in the backseat of a hired car in a new country, her daughter's breath and her husband's steady gaze, and the city outside playing its long, unsung song. She did not have to hear it. She had only to feel it. And she did.
 
+### Chapter 11 — The City of Intervals
+
+The hotel room was on the twenty-third floor, and the window was a wall of midtown glass. Soo-jin stood in front of it with Hana on her hip, the tiny weight of her daughter leaning into the crook of her arm, and she felt the room breathe. The vibration of the city came up through the carpet, through the soles of her bare feet, a dense and layered hum — traffic below, the heating in the walls, the distant thrum of the elevator shaft, a pulse of water moving through the building's throat. She pressed her forehead to the glass and looked down. The people were small as half-notes, the taxis yellow as struck cymbals. She could not hear the horns, but she could feel them: the city would not stop playing.
+
+Marcus came up behind her, kissed the back of her neck, and signed over her shoulder with his free hand: *You look like you're memorizing it.*
+
+*I am,* she signed back, shifting Hana to her other arm. *I want to keep some of it.*
+
+*We have ten days.*
+
+*Ten days is enough to fall in love.* She paused, turned her head, and met his eyes. *It was enough before.*
+
+He smiled, that slow unhurried smile she had seen first across a gallery room in Whitechapel, the smile of a man who understood time as a matter of phrasing. He reached for Hana, who went to him without complaint, her hand finding his collar and holding it the way she held everything — with a claim, a quiet stubborn faith. Marcus looked at the window, then back at Soo-jin. *I want to show you something,* he signed. *Tommy found a room.*
+
+---
+
+Tommy was the pianist's cousin, a sound engineer who had moved to Brooklyn eleven years ago and had absorbed the borough like a sponge. When Marcus had sent him the news of the trip, Tommy had written back a single line: *I know a room up in Harlem that will make your wife's mouth water. Bring her.*
+
+The room was a studio in the ground floor of a brownstone on 131st Street, a narrow space with a baby grand pushed into the corner like a patient animal. The owner was a retired saxophonist named Mr. Dowd, who shook Soo-jin's hand with both of his, and she felt the dry warmth of his palms, the calluses on his thumbs, the permanence of his grip. He asked, through Marcus, if she would like to touch the piano.
+
+Soo-jin had never played. But she had felt a hundred pianos, in galleries and clubs and the front rooms of strangers' houses, the same way she had felt a hundred guitar strings and drum skins — by placing her hands on the body of the instrument and letting it speak to her in the only language sound had with her: the dialogue of vibration.
+
+Mr. Dowd took her to the piano and placed her hand on the lid. The satin wood was cool and smooth, and beneath her palm, she felt a low, continuous warmth — not a sound, not yet. It was the instrument's own attention, its patience. She felt Marcus sit down at the bench. He placed his hands on the keys, and even before the first note struck, she felt the shift in the room, the way the air leans in when a musician is about to play.
+
+The first chord came through her hand as a bloom rising up from the floor. A low, round sound that moved up through the curve of the lid, as if the piano were turning over in its sleep. Then another chord, and another, and she felt the shape of it between her palms — not a melody, because she did not need a melody. She felt the harmony as an architecture: the way the notes leaned on each other, held each other up, asked and answered. Marcus was playing a song she did not know, because the song was new, and she did not open her eyes. She stood with one hand on the piano and let the music climb through her arm, through her sternum, into the hollow of her chest. It was not notes. It was rooms. Rooms she had not yet lived in, rooms she now wanted to enter.
+
+When the song ended, Mr. Dowd was speaking, and Marcus was laughing, and Hana sat on the floor among some old cymbals tapping them with a wooden mallet, delighted with herself. Soo-jin opened her eyes. She released the piano. Her palm tingled as if the wood had left a chord printed on her skin.
+
+Marcus came to her and signed: *He said that song is called "Soo-jin's Blue." I wrote it for you this morning, before you woke.*
+
+She felt her face move, her eyes burning, the threshold of tears. *Play it again,* she signed. *Let Hana hear it.*
+
+*She will feel it,* Marcus signed. *She already does.*
+
+---
+
+In the days that followed, New York revised itself around her. She learned its pulse the way she had learned London's — by walking into it. They took Hana to the park, where the wind moved the leaves in a quick percussion and the children's laughter came up through the ground as a light, scattered drumming. She watched a violinist on a corner play for pocket change, the bow moving like a fine brush, and she stood close to the instrument case until she felt the music escape from the strings in thin waves of warmth. She walked through the galleries in Chelsea, her hand around Marcus's elbow, reading the rooms with her eyes, and she rediscovered herself in a painting that was nothing but a single white line on a deep blue field. She stood in front of it for a long time. Marcus stood beside her, patient. Hana slept in the carrier against his chest.
+
+When Soo-jin signed, her hand hesitated at the edge of a gesture before completing it: *It sounds like a single note held long enough to become a horizon.*
+
+*Paint it,* Marcus signed. *Whatever it sounds like. Paint it.*
+
+The gallery owner, a tall woman with silver hair, approached them. She addressed Soo-jin directly, because Marcus had already told her: *She prefers it. Speak her language. Sign is her language, but she can read lips if you speak slowly.*
+
+The woman said, her words deliberate, *We would like to show your work. Do you have a series?*
+
+Soo-jin looked at Marcus, then back at the woman. She had not painted a series in a year. She had painted nothing but a few sketches since Hana was born, hers and the small quick drawings she did on napkins in cafés, to keep her wrist loose. But she had felt — in the plane, in the city, in the piano, in the impossible weight of light off the river — a new song accumulating, the way a chord builds its patience before it resolves.
+
+She signed to Marcus. He translated without looking at her hands, his voice slow and even, speaking her words aloud: *Tell her I am working on it. Tell her I will bring it back to her before we leave.*
+
+The woman nodded and gave Soo-jin her card. Soo-jin held it between two fingers, and the card felt heavier than paper, weighted with the beginning of something.
+
+---
+
+The night before they left, Tommy took them to a club in the Village. It was a small room, a basement with exposed brick and a low ceiling, and the air was thick with the smell of old wood and coffee. Soo-jin sat at a table against the wall, close enough to feel the stage through the floor. Hana was with a babysitter they had found through the hotel, a kindly woman with a red bandana who had taken Hana's hand with the confidence of a grandmother. Soo-jin had kissed her daughter's forehead and felt a soft pang, the daily ache of letting go, even for an evening.
+
+Onstage, a trio was playing — bass, drums, trumpet. Soo-jin watched the trumpet player's chest rise and fall, the way his breath became a body in the air. She felt the bass through her chair, a low round wave moving up her spine, and the drums as a heartbeat under the table. She did not need the melody. She had the architecture. She always had.
+
+Marcus had been quiet all day. Not sad — but inward, the way he was before he worked something out at the piano. Between sets, she signed: *You are thinking.*
+
+*I am thinking about the day we met,* he signed, his hands moving in the dim light of the table candle. *You were standing in front of your painting, and I thought — I thought, this woman is hearing something no one else can hear. I have never stopped thinking that.*
+
+*And now?*
+
+*Now I know it is true.* He looked at her, and she watched the candlelight move across the planes of his face, the small creases at the corners of his eyes, the tiredness he carried like a good coat. *I am thinking about how many times I have tried to tell you what you sound like to me, and how every time I run out of words.*
+
+*Because I do not sound like anything,* she signed. *I am silence.*
+
+He moved his hands, and she felt the warmth of his sign before she read it — the quick, cherishing shape of it: *No. You are the reason silence has a name.*
+
+She took his hand, pressed her palm against his palm, and let her thumb rest on the pulse in his wrist. She felt the beat, the rhythm that had traveled with her through airports and streets and the small dark rooms of every clinic after every failed pregnancy, the rhythm that had carried her across an ocean with a child in her arms. She did not need to hear it to know it was true. She had only to feel it.
+
+On the plane, in the last pale light of the seat-belt sign, she opened her sketchbook. She had a row of drawings already — the bridge, the river, the white line on blue, the piano in the corner of a Harlem room. But now, in the aisle seat, Hana asleep across her lap, Marcus asleep two seats away, she drew a line. A single line that began at the edge of the page and arced toward the center, a line that bent like a note bending under the weight of air, a line that wanted to become a horizon.
+
+She signed to no one, the gesture small and private, her hand moving in the dim cabin like a whisper in a dark room: *One more room. One more song.*
+
+And she felt, beneath her bone and breath, the long unbroken rhythm of everything that had carried her here — and the promise of everything that would carry her, still, from this beginning.
+
 ---
 
 *— End —*
